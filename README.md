@@ -1,1 +1,1 @@
-# k-z-s
+# szia szabi
